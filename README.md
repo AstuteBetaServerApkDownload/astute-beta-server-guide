@@ -10,8 +10,7 @@ Download
 Official site: https://ffastutebetaserver.com
 Guides
 
-[Download Guide
-](https://ffastutebetaserver.com/astute-beta-server-apk-download/))
+[Download Guide](https://ffastutebetaserver.com/astute-beta-server-apk-download/)
 [Install Guide](https://ffastutebetaserver.com/how-to-install-astute-beta-server-apk/)
 [OB53 Update](https://ffastutebetaserver.com/free-fire-ob53/)
 [iOS Guide](https://ffastutebetaserver.com/astute-beta-server-ios/)
