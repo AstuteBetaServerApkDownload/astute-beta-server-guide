@@ -15,3 +15,5 @@ Guides
 [Install Guide](https://ffastutebetaserver.com/how-to-install-astute-beta-server-apk/)
 [OB53 Update](https://ffastutebetaserver.com/free-fire-ob53/)
 [iOS Guide](https://ffastutebetaserver.com/astute-beta-server-ios/)
+[OB54](https://ffastutebetaserver.com/free-fire-ob54-update/)
+[unlock beta server](https://ffastutebetaserver.com/unlock-beta-server/)
